@@ -1,1 +1,0 @@
-# shakiahmaryjane.github.io
